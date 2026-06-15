@@ -1,1 +1,2 @@
-# pw2-colmeia
+# Lorena D. Moraes Mantovani Nascimento
+# Kaique Eduardo da Silva Silveiro
